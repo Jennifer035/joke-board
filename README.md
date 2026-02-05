@@ -18,3 +18,6 @@ What's the best thing about Switzerland? The flag is a big plus.
 Name the kind of tree you can hold in your hand? A palm tree!
 
 Why won’t you ever find a horse using an Android phone? They prefer Apples.
+
+What's a cow's favorite tv show? "Graze Anatomy"
+
