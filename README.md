@@ -25,3 +25,5 @@ Have you heard about the new corduroy pillow? It's making healines!
 
 I entered a joke competition once with 10 puns. Thought I'd win, but no pun in ten did.
 
+Why don't skeletons fight eachother? They don't have the guts!
+
